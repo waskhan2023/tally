@@ -1,4 +1,4 @@
-# Tally-ERP9-Cracked
+# Tally-ERP9-with activation patch
 All features of the paid version of Tally ERP9 are available here.
 
 Steps to safely download and install cracked version of Tally ERP9 safely on your (Windows 7/8/10/11).
